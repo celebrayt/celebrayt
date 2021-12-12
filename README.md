@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @celebrayt, a.k.a. Brayton Dawson
+- 👀 I’m interested in becoming more proficent in the languages I know and to continue learning new languages and expanding my know-how.
+- 🌱 I’m currently learning javascript
+- 💞️ I’m looking to collaborate on any projects that I can provide value to that make a positive impact.
+- 📫 How to reach me find me on LinkedIn or Instagram @celebrayt and request my email. 
